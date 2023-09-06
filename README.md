@@ -1,4 +1,4 @@
-### Hi there 👋
+### BYU Undergraduate Senior in Statisics. Enjoys playing piano, skiing, outdoor adventures, reading, etc.
 
 <!--
 **kylieclinton/kylieclinton** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
